@@ -1,0 +1,1 @@
+Link do Vídeo: https://www.youtube.com/watch?v=smnxWspZMNY&list=WL
